@@ -1,1 +1,1 @@
-# The Theory of Positivity
+# Theory of Positivity
