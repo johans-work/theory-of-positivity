@@ -24,6 +24,6 @@ nothing is anything
 everything as something
 
 
-we believe everything is something, and accept nothing as anything, exept metaphorically.
+we believe everything is something, and accept nothing as anything, except metaphorically.
 when it's the opposite. The notion that anything is some "thing" is metaphysics.
 Everything can only be seen as something, not as being something.
