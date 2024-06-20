@@ -18,7 +18,7 @@ Positivistic process
 
 Quantum
 
-# The Metaphyics of Is
+# The Metaphyics of "is"
 
 nothing is anything
 everything as something
