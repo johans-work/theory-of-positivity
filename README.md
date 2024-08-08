@@ -1,6 +1,6 @@
 # Theory of Positivity
 
-If relativity is about time being relative, positivity is about time being positive, progressive, and unidirectional. 
+If relativity is about time being relative, positivity is about time being positive. Positive, as in, progressive and unidirectional. 
 
 Throwing a rock into a pond generates ripples. The throw must happen, the rock and pond must exist, the rock must hit the water, and only then will multiple ripples grow out from the point of contact. This order does not, and cannot change. 
 
